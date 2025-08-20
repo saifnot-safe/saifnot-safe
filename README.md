@@ -1,4 +1,4 @@
-## Hi ! ⋆₊⊹✮ I'm Saif👋
+## Hi ⋆₊⊹✮ I'm Saif !
 Welcome 2 my Github... 🤍
 <pre>
    ／、     
